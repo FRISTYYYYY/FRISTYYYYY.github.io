@@ -1,0 +1,1 @@
+# FRISTYYYYY.github.io
